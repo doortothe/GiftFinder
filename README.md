@@ -1,3 +1,8 @@
+Update
+================
+
+Sorry I haven't updated when I said I would. My cold came back with a vengeance so I couldn't work on it when I made time to do that and now I have midterms next week so I'm going to spend all of my free time studying for those. I may need another week to update this project.
+
 GiftFinder
 =================
 
